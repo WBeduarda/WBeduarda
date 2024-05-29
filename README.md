@@ -10,4 +10,4 @@
 - My favorite color is purple 💜
 - I like to go swiming and I like to play volleyball 🏊🏽‍♀️🏐
 - @xeduardarosa 📱
-![](https://media1.tenor.com/m/4e3Gh3RIy3sAAAAC/surprised-ryan-reynolds.gif)
+
